@@ -1,3 +1,6 @@
+$50 Task-Based Remote Job – No Experience Needed (Work from Home | Latin America & Asia)
+
+
  necesito una "cover letter " para este tabajo corta pero interesanteWe are looking for Virtual Assistants to help with simple online tasks. This remote, part-time role is perfect for people in Latin America (Mexico, Brazil, Colombia, Argentina, Peru, Chile, Ecuador, Bolivia, Guatemala, Honduras) and Asia (Philippine, china, South Korea, Japan, Indonesia, Vietnam, Nepal, Sri Lanka, Thailand, Malaysia) who want to earn extra income working from home.
 
 Ideal Candidates / Candidatos Ideales:
