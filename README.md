@@ -1,2 +1,0 @@
-# work
-repo para trabajar
