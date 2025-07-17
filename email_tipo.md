@@ -14,3 +14,26 @@ Análisis y mejora continua: Recibe reportes periódicos para identificar oportu
 Un saludo, [Tu Nombre]
 [Tu Empresa]
 [Tu Teléfono / WhatsApp]
+
+
+
+
+
+
+Hola [Nombre],
+
+¿Te has preguntado cómo grandes empresas logran que sus clientes vuelvan y los recomienden? Uno de sus secretos es contar con una Mesa de Ayuda Externa: un equipo especializado que responde consultas y resuelve problemas de manera rápida y profesional.
+
+Ventajas para tu comercio:
+
+Atención personalizada desde el primer contacto
+Reportes para mejorar tu servicio
+Más tiempo para tu equipo
+Clientes más felices y fieles
+¿Te gustaría conocer casos de éxito o saber cómo implementar este servicio en tu empresa?
+Responde a este correo o agenda una llamada cuando te convenga.
+
+Un cordial saludo,
+[Tu nombre]
+[Tu empresa]
+[Tu teléfono / WhatsApp]
