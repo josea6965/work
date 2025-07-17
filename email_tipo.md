@@ -1,6 +1,6 @@
 Hola [Nombre del destinatario],
 
-Sabemos que en el sector comercio, la experiencia del cliente es clave para el crecimiento y la fidelización. Por eso queremos compartirte una solución que puede marcar la diferencia en tu empresa: la Mesa de Ayuda Externa.
+Sabemos que en el sector comercio, la experiencia del cliente es clave para el crecimiento y la fidelización. Por eso queremos compartirte una solución que puede marcar la diferencia en tu empresa: la Mesa de Ayuda Externa "FRESHDESK".
 
 ¿Por qué considerar una Mesa de Ayuda Externa?
 
@@ -11,9 +11,9 @@ Escalabilidad: Adapta el soporte según tu crecimiento y demanda estacional, sin
 Análisis y mejora continua: Recibe reportes periódicos para identificar oportunidades de mejora en productos y servicios.
 ¿Te gustaría saber cómo implementar una Mesa de Ayuda Externa en tu empresa? Contáctanos y agenda una breve reunión informativa. ¡No pierdas la oportunidad de diferenciarte en el mercado!
 
-Un saludo, [Tu Nombre]
-[Tu Empresa]
-[Tu Teléfono / WhatsApp]
+Un saludo, Jose Ramirez
+IT soluciones
+Tlf 4145962919
 
 
 
